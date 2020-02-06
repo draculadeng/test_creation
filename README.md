@@ -16,4 +16,3 @@ Anyway, I hope she can get recovered.
 To be continued.
 
 
-ははは
