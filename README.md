@@ -15,4 +15,4 @@ For my mother, I know it's her duty to save other's lifes at the risk of her own
 Anyway, I hope she can get recovered.
 To be continued.
 
-
+明日きっと晴れるかな。
